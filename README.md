@@ -1,6 +1,6 @@
 <br><br>
 
-https://www.sonukumarkushwaha.live
+http://www.sonukumarkushwaha.live
 
 https://sonukushwaha.netlify.app
 
